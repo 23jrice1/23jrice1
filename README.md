@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @23jrice1
+- 👀 I’m interested in ur mom
+- 🌱 I’m currently learning github
+- 💞️ I’m looking to collaborate on team JAWS
+- 📫 How to reach me, 385-212-2153
